@@ -15,4 +15,10 @@ By clicking on “Click here” you can download files from graphic designing Bu
 | Social networks   | 39      | 150+  | [CLICK HERE](https://drive.google.com/drive/folders/1znTUgYmlLo2eCB8cIThNA3y6a3dOThcL)    |
 | Folder            | 31      | 30+   | [CLICK HERE](https://drive.google.com/drive/folders/17rBNKQQI3aEDlRcTVv1ZTTGOCP_0Hh1m)    |
 | Flyer             | 14      | 100+  | [CLICK HERE](https://drive.google.com/drive/folders/1wbHY8-vNS1-1tp6vJFxQgmunPLrnVTYh)    |
-|                   |         |       |               |
+| Facebook covers   | 50      | 60+   | [CLICK HERE](https://drive.google.com/drive/folders/1rstjqqa2bz35DLGqzPBQ4wJAVLeR9Ujr)    |
+| Interactive invitations   | 1      | 90+  | [CLICK HERE](https://drive.google.com/drive/folders/1DSvMsTBEqk8mhoQwbZYwQB-yuJbY_djf)    |
+| Digital cards     | 1       | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/14R8c8YDHRczRU9CYWs0ji6d8MYX_Cb5i)    |
+| Business cards    | 14      | 70+   | [CLICK HERE](https://drive.google.com/drive/folders/17rhao6Ccfa6qFj1PdmAFEdse35zoheW0)    |
+| Menu              | 28      | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/17qkhEu5o158__WnzxRSSgF1XK3UbUSW9)    |
+
+## Corel Draw Collection
