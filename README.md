@@ -13,6 +13,6 @@ By clicking on “Click here” you can download files from graphic designing Bu
 | Digital card      | 3       | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/14R8c8YDHRczRU9CYWs0ji6d8MYX_Cb5i)    |
 | Youtube           | 1       | 80+   | [CLICK HERE](https://drive.google.com/drive/folders/1DMErG1sipN7GApjiOA1OvP_A3nnN9kKe)    |
 | Social networks   | 39      | 150+  | [CLICK HERE](https://drive.google.com/drive/folders/1znTUgYmlLo2eCB8cIThNA3y6a3dOThcL)    |
-|                   |         |       |               |
-|                   |         |       |               |
+| Folder            | 31      | 30+   | [CLICK HERE](https://drive.google.com/drive/folders/17rBNKQQI3aEDlRcTVv1ZTTGOCP_0Hh1m)    |
+| Flyer             | 14      | 100+  | [CLICK HERE](https://drive.google.com/drive/folders/1wbHY8-vNS1-1tp6vJFxQgmunPLrnVTYh)    |
 |                   |         |       |               |
