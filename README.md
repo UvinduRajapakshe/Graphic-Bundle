@@ -41,3 +41,9 @@ By clicking on “Click here” you can download files from graphic designing Bu
 | Christmas         | 1       | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/1vnujMGE8aSSS4nRL45O5UeRwaAbe0w6O)    |
 | Premium Sources   | 1       | 80+   | [CLICK HERE](https://drive.google.com/drive/folders/1HQr2sVEnvc5yHfKGZRGAHcQ9hGzFMnMc)    |
 | Frames            | 2       | 400+  | [CLICK HERE](https://drive.google.com/drive/folders/11m-O0gGgcU3xzqMR8z9oF6_JSUhFSg-r)    |
+| Avatars           | 1       | 150+  | [CLICK HERE](https://drive.google.com/drive/folders/1wCuAaWZfIdDvD7cZAZrsm6UmrIdDsyTo)    |
+| Posters           | 1       | 30+   | [CLICK HERE](https://drive.google.com/drive/folders/16UQGJMiYMMxEs-XsPKmLEJ_WxMTITnNp)    |
+| Barber Shop       | 1       | 100+  | [CLICK HERE](https://drive.google.com/drive/folders/1SnJoZBDebEZwYF99BmOILjLo9Rwefuy3)    |
+| Shield            | 1       | 60+   | [CLICK HERE](https://drive.google.com/drive/folders/1ETbgAqR0ao684GPN2kf1cQ9ycZN3dZpw)    |
+| Visiting Card     | 1       | 90+   | [CLICK HERE](https://drive.google.com/drive/folders/1RM74V2WogIeYQAQ6efkdcid1qWB8agBd)    |
+| Visiting Cards    | 1       | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/1106O7vxiHyiehxj49tspp5I5JYnD5CPJ)    |
