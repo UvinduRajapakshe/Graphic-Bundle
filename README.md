@@ -47,3 +47,17 @@ By clicking on “Click here” you can download files from graphic designing Bu
 | Shield            | 1       | 60+   | [CLICK HERE](https://drive.google.com/drive/folders/1ETbgAqR0ao684GPN2kf1cQ9ycZN3dZpw)    |
 | Visiting Card     | 1       | 90+   | [CLICK HERE](https://drive.google.com/drive/folders/1RM74V2WogIeYQAQ6efkdcid1qWB8agBd)    |
 | Visiting Cards    | 1       | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/1106O7vxiHyiehxj49tspp5I5JYnD5CPJ)    |
+| Certificates        | 1       | 70+   | [CLICK HERE](https://drive.google.com/drive/folders/1SGTteoWoUtZdm8LdIRT27zxyFiBCyT7G) |
+| Brewery             | 1       | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/1w36r-fApMPU1C336_obclgY7i-GJJsuU) |
+| Wedding Invitations | 1       | 500+  | [CLICK HERE](https://drive.google.com/drive/folders/1Spi0dNvfqyejTyNXNMs1EJVjxEQn_5tF) |
+| Name Labels         | 1       | 500+  | [CLICK HERE](https://drive.google.com/drive/folders/11304SrBbKQSiWXILNlTXhgBD-DlXG-dA) |
+| Commemorative dates | 9       | 70+   | [CLICK HERE](https://drive.google.com/drive/folders/1SKfJXLZ4RKG8QTR8cYZfJaS9tArDpubb) |
+| Prints              | 4       | 20+   | [CLICK HERE](https://drive.google.com/drive/folders/1whyZ9a7CcJn1Wt-K7PmecaCWW5EU3BmB) |
+| Tapes and Bands     | 1       | 100 + | [CLICK HERE](https://drive.google.com/drive/folders/1Svcobko_G0F8V5wHics1USQAalV7IWib) |
+| Flowers             | 1       | 1400+ | [CLICK HERE](https://drive.google.com/drive/folders/1viJM5gwWzqrLbwDOZo92FDpPZ3_kbx8N) |
+| Flyers              | 1       | 15+   | [CLICK HERE](https://drive.google.com/drive/folders/1DPPwZyQ1jhXI-nhWTIek5Z1Vu9Goz4id) |
+| Icons               | 11      | 50+   | [CLICK HERE](https://drive.google.com/drive/folders/13FmycygfdLmEacIVG9-7wwRuenLeEAC0) |
+| Infographics        | 1       | 80+   | [CLICK HERE](https://drive.google.com/drive/folders/1KDQWwKlO2bwvN9YZ4AqU122aCow1Ud_E) |
+| Logo A-Z            | 26      | 400+  | [CLICK HERE](https://drive.google.com/drive/folders/1BQ26Jab65z9gSEfMQoxaf_DNr9w2x9dq) |
+| Logo                | 3       | 150+  | [CLICK HERE](https://drive.google.com/drive/folders/1Qo9bNMOAoIBg3aHr1fi4Z2Wm7Ji_K7Fo) |
+| Mandalas            | 2       | 30+   | [CLICK HERE](https://drive.google.com/drive/folders/1SEdgi7Rx6RTUVu1H9lJLzQzbTHjUTT1O) |
